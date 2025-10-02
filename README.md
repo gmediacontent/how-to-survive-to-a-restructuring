@@ -1,1 +1,2 @@
-# how-to-survive-to-a-restructuring
+# How to survive to a Restructuring
+Au moment où l’entreprise reçoit l’avis d’une personne soumise à une restructuration, un grondement retentit, comme si le ciel s’était effondré. Et le monde a changé. [La vente de ce district a été décidée.] [Cela entraînera une restructuration de la main-d’oeuvre.] Restructuration pour des vies Missions que vous pouvez capturer pour obtenir des pouvoirs spéciaux Si c’est une farce miraculeuse, je ferai de mon mieux pour l’obtenir ! « J’ai trouvé. Un moyen de vivre ensemble. » La promotion ultra-rapide de Lee Eunho, candidate à la restructuration, commence maintenant !
